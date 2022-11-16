@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @freyaliWL
-- 👀 I’m interested in Classical Music and Films.
 - 🌱 I’m currently studying at Simon Fraser University.
 - 📫 How to reach me: freya_li@sfu.ca
 <!---
